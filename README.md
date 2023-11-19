@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **contact@vypex.xyz**
 
-- ⚡ Fun fact **i like cats**
+- ⚡ Fun fact **most of the time idek what im doing**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
